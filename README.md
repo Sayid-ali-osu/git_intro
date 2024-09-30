@@ -1,2 +1,1 @@
  Sayid Ali
-25
